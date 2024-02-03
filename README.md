@@ -14,9 +14,7 @@ ID1738234366277620218
 
 
 @beitmotif Jan 1, 2024
-I love being engulfed in melancholy
-ketika bersedih, saya beriman
-ketika ekstasi iman, saya tidak peduli dunia
+I love being engulfed in melancholy, ketika bersedih saya beriman, ketika ekstasi iman , saya tidak peduli dunia, terdengar oksimoron karena beribadah dilakukan di dunia.
 ID1741855893686481243
 
 
