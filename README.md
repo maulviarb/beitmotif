@@ -51,3 +51,45 @@ saya ingin memberi tahu kalo saya sabar dan siap menunggu langit menurunkan huja
  
 @beitmotif Nov 6, 2023
 Bob marley said "no women no cry" ?? blud im literally outta the womb, cryin 😭 TLDR : INEEDWOMENFR😭
+
+beitmotif Oct 26, 2023
+Alhamdulillah saya sudah menjadi kaum berak lancar (rutin memakan pepaya)
+
+@beitmotif Oct 25, 2023
+Any time I have left with her will be enough, she makes me so happy a week feels like a year, a smile, last for the eternity
+
+@beitmotif Oct 15, 2023
+aku mau ngopeni kamu seumur hidupku *secara perlahan menawarkan kopi kapal api sachet 12rbuan(saya tidak tau harga market)
+
+@beitmotif Sep 19, 2023
+pernahkah anda mencoba mengkonfirmasi perasaan anda apakah benar atau cuma neuron activation belaka
+
+@beitmotif Sep 17, 2023
+I believe tidak ada orang yang inherently ingrained baik kecuali nabi Muhammad SAW
+
+@beitmotif Sep 14, 2023
+jadi inget gua maen pokemon silver pake emulator meboy di Sony Ericsson j300i ada kali dapet 10fps dan harus diframeskip biar somewhat playable mpe tamat, not mentioning maen tanpa ada soundnya, good times🥲 
+
+@beitmotif Sep 4, 2023
+I need her yip yapping non stop, like damn this bitch TALK
+
+@beitmotif Sep 3, 2023
+falling into thirst trap ? in this economy ?!!!??
+
+@beitmotif Sep 1, 2023
+belakangan ini saya sangat menikmati berbahasa indonesia yg baik dan tidak terlalu benar
+
+@beitmotif Sep 1, 2023
+bukan kapasitas saya, mungkin mas mas isi 2 liter bisa menggantikan
+
+@beitmotif Sep 1, 2023
+modern problems requires modern jawir
+
+@beitmotif Aug 31, 2023
+ada spesial place di sana, exclusive buat kompeni yg suka mempersulit rezeki orang jawa ☺️
+
+@beitmotif Aug 29, 2023
+sebagai penyitas ASPD akut, saya sudah menerima bahwa saya akan maidenless dalam waktu yg sangat lama.
+
+@beitmotif Aug 29, 2023
+im soo jawirmaxxing bro it's a tad bit concerning, saya tidak ingin nrimo ing pandum
