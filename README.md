@@ -27,6 +27,12 @@ ID1731341637652246748
 Why is he still holding the withering roses? Is it because of their beauty, fragrance, or sentimental memories? I wonder if he would give them up for another bouquet of roses.
 ID1729988893444035029
 
+
 @beitmotif Nov 29, 2023
 wahai ngengat kenapa kamu ingin mendekati bulan purnama, apakah kamu mampu ? mungkinkah engkau hanya ingin lebih dekat daripada laut yg selalu mengaguminya di hari ke tiga puluh.
 ID1729546018146922590
+
+
+@beitmotif Nov 27, 2023
+kenapa perasaan biru harus bersedih, biru sejatinya hanya mengungkapkan perasannya tanpa harus dihakimi, tolong tanyakan hex 87CEEB dan 75B0FE apakah perasaan mereka sama.
+ID1728828913898734040
