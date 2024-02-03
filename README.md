@@ -46,3 +46,37 @@ ID1728828913898734040
 @beitmotif Dec 22, 2023
 kedai kecil di pinggiran kota, kanan kiri tanpa ada tetangga, oranye terasa hangat mengingatkanku pada kos pernah saya tempati, terlihat seorang bapak paruh baya sedang menikmati acara tv, sembari menyeruput kopi yg dibuatnya untuk menghilangkan rasa kantuknya.
 ID1738234366277620218
+
+
+@beitmotif Nov 15, 2023
+penyintas Alzheimer alur hidupnya dipenuhi dengan timeskip tidak seperti kita para NPC yg linear (saya tidak bermaksud ableist)
+ID1724818877497151688
+
+
+@beitmotif Nov 15, 2023
+pro Bono dibayar amal perbuatan
+ID1724725055433961526
+
+
+@beitmotif Nov 14, 2023
+Tidak perlu belajar simpul menyimpul untuk menggenggam jari jemarimu
+ID1724469923693690905
+
+
+@beitmotif Nov 14, 2023
+Tears follow you in your best and in your worst rock bottom.
+ID1724419875504869552
+
+@beitmotif Nov 13, 2023
+menimbang asa, tak terlihat, gamang rasanya, mengerutkan kening ke tanah bak kasur terbuat dari samudra
+ID1724085382168637844
+
+
+@beitmotif Nov 12, 2023
+somebody pls take all of my life savings idc anymore
+ID1723654427800911967
+
+
+@beitmotif Nov 11, 2023
+saya ingin memberi tahu kalo saya sabar dan siap menunggu langit menurunkan hujan beserta gemuruh petir, namun langit sepertinya enggan memberi tahu lagi kapan dia datang
+ID1723357295059275856
